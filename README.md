@@ -1,1 +1,0 @@
-# skyglow-privacy-policy
